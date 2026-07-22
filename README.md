@@ -18,7 +18,7 @@
 <td style="vertical-align: top;">
     <p align="center"/>
 <a href="https://rentry.org/danhengpt"><img src="https://file.garden/aZFgsf3ch2qR4q-s/Untitled82_20260722205708.png" width=80/><a/> ࣪‎ ‎‎   ִֶָ☾.࣪࿐ ‎ ‎ ‎  · ─ <br>
-⁀➴‎ ⊹ ࣪ ˖ ໒꒱ ‎ ‎ <a href="https://naviren.atabook.org/"><img src="https://file.garden/aZFgsf3ch2qR4q-s/Untitled82_20260722205724.png" width=90/><a/> <br>
+⁀➴‎ ⊹ ࣪ ˖ ໒꒱ ‎ ‎ <a href="https://navistel.atabook.org/"><img src="https://file.garden/aZFgsf3ch2qR4q-s/Untitled82_20260722205724.png" width=90/><a/> <br>
 <a href="https://rentry.org/zycalderaeta"><img src="https://file.garden/aZFgsf3ch2qR4q-s/Untitled82_20260723002402.png" width=50/><a/>‎ ‎ ‎.ೀ ‎ ‎ ‎ ‎ ‎ ୭ ˚. ᵎᵎˎˊ˗ <br>
     >⩊<.ᐟ <br>
     · · ─ ·ʚɞ· ─ · ·<br>
