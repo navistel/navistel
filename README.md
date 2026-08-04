@@ -5,8 +5,8 @@
 <img src="https://file.garden/aZFgsf3ch2qR4q-s/ezgif.com-gif-maker%20(7).gif" width=350 /> <br>
 <img src="https://file.garden/aZFgsf3ch2qR4q-s/Untitled82_20260722210032.png" width=350 height=10/> <br>
 <sup> ⤷ A very easy-going guy, No dnis, try me (jk js dont be weird) <br>
-⤷ Non-verbal or Semi non-verbal, bc im an introvert, c+h pls! <br>
-⤷ Im veryyy tied to my hobbies, pls w2i as Im mostly oftb/afk! <br>
+⤷ Non-verbal or Semi non-verbal, bc im an introvert <br>
+⤷ I'm a compsci major, I'm busy bc of college<br>
 ⤷ I like Dan heng a lot, pls gift me dan heng pleasepleaseplea <br>
 <sup/>
 <table>
